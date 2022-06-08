@@ -1,2 +1,2 @@
 # Adregamdi
-🍊Adregamdi - Jeju Island Travel Community Service
+🍊Adregamdi - Jeju Travel Community Service
